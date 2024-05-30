@@ -1,9 +1,11 @@
 ## 🚧 Thushi Construction Pvt Ltd 🏗️
 
-
-**Abirahmi Aham, Vigneswara College Road**  
-**Karanavai East, Karaveddy, Jaffna, Sri Lanka 40000**  
-**+94 77 341 1354**
+📍  Abirahmi Aham, Vigneswara College Road,
+    Karanavai East, Karaveddy, 
+    Jaffna, 
+    Sri Lanka 40000
+    
+📞  +94 77 341 1354
 
 ---
 
