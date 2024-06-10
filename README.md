@@ -1,8 +1,8 @@
-## 🚧 Thushi Construction Pvt Ltd 🏗️
+## 🚧 Thushi Construction (Pvt) Ltd 🏗️
 
-📍  Abirahmi Aham, Vigneswara College Road,
-    Karanavai East, Karaveddy, 
-    Jaffna, 
+📍  J/N.M.M Vidyalayam Road, Nelliady
+    Jaffna
+    Northern Province
     Sri Lanka 40000
     
 📞  +94 77 341 1354
